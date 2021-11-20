@@ -6,5 +6,5 @@ i've been rading it for over a year now, it's been crazy.
 
 anyways, im a lua scripter, i was born in egypt. My name is Seleem or Selim.
 
-my discord is ! EMPLIC#9999
+my discord is ! EMPLIC#9999 and my only alt account is https://github.com/offperms
 
